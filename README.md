@@ -1,1 +1,0 @@
-# projeto_emanuelly_bd
